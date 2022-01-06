@@ -8,4 +8,4 @@ Mình tên là Đức. sn 2k4. Mình 1m65 mắt 1 mí, Mình tay chân lành l�
 
          - Lol: a ytá chơi chuối
 
-  ψ(｀∇´)ψ hết phim :)))
+  ψ(｀∇´)ψ hết phim 🌚🌚🌚
